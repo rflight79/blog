@@ -1,6 +1,6 @@
 # Ideas
 
-A list of possible things I want to write about
+## A list of possible things I want to write about
 
 Abortion *vs* miscarriage based on our own personal experience
 
