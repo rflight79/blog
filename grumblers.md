@@ -30,3 +30,9 @@ This **food** has been provided by God Himself, through the prophets and apostle
 So we have this wonderful food from God, that He miraculously provides for us to feed on, both personally in our daily devotions, and when we come together as a body. And what has the Church done over the ages? We've grumbled that this is **all** that God has given to us, and we want more.
 
 So we add skits, we build mega-complexes where we can have the equivalent of a rock show, and the "preaching" of the Word is beamed to multiple locations simultaneously, we have lots of personal stories that don't have anything to do with the Bible, we have faith healers, we promise people that they can be rich if they have enough faith, we tell stories to make people feel good about themselves, we come up with our own songs to sing to God (when he provided us with an entire songbook !!!), and we even throw out His word altogether.
+
+### The Solution??
+
+Obviously the solution is that we need to turn to God, remember that He has provided sufficiently for us in His scriptures, and ask Him for forgiveness and to help us to see what we truly need, and to grow us in knowledge and understanding. 
+
+Imagine what kind of reformation there would be if every man that stood in a pulpit decided that next week he was going to start **expounding** the word of God from a Christological, historical hermeneutic to his congregation, working his way throught he various books of the Old and New Testaments. And that **that** was going to be the **meat** of the worship service. 
